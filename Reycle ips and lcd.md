@@ -1,0 +1,1 @@
+for fixing lcd that was broke by water, is makes good setting n this apps, can sold the repaired lcd by this application if you can hidden the broken lcd by lcd Setting that i uploads., sell this to customer, reycle lcd can be fixed for all ips lcd, now only fix brokened because of water only.
